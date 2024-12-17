@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tikdurrani
-- 👀 I’m interested in data analytics projects
+- 👀 I’m interested in Business analytics projects
 - 🌱 I’m currently learning business and marketing analytics
 - 💞️ I’m looking to collaborate on Business Intelligence projects
 - 📫 How to reach me t.iftikhardurrani@gmail.com
