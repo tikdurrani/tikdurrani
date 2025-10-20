@@ -1,4 +1,4 @@
-# Hi, I’m Iftikhar Durrani (@tikdurrani) 👋
+# Hi, I’m Talha Durrani (@tikdurrani) 👋
 
 ### 📊 Business & Marketing Analytics Specialist
 
